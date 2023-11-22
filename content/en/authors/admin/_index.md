@@ -53,4 +53,4 @@ So gather your friends or loved ones, assign your clue reader, and set off on a 
 
 ### Join the Quest
 
-Begin your magical journey now. Sign up here to receive your first clue and embrace the wonder of Strasbourg’s Christmas markets. Love, joy, and festive surprises await!
+Begin your magical journey now. Sign up [here](https://forms.gle/RoFfugybvTA1L4Hf6) to receive your first clue and embrace the wonder of Strasbourg’s Christmas markets. Love, joy, and festive surprises await!
